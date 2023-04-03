@@ -7,4 +7,4 @@ group project
 5. My weakness is wearing too much leopard print
 6. How is the world ruled and led to war? Diplomats lie to journalists and believe t
 hese lies when they see them in print                                               
-                                                                 
+7. The big print gives and the small print takes away                                                                                                
